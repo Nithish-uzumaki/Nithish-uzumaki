@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nithish-uzumaki
-- 👀 I’m interested in machine learning and wweb development, game development
+- 👀 I’m interested in machine learning and web development, game development
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate in any interesting thing
 - 📫 How to reach me by searching name and you can contact with me in telegram my id:@Nithish_uzumaki_uchiha
